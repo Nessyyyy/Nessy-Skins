@@ -7,7 +7,7 @@ My main skins!!! (click on the blue title) - I might upload my old skins later
 # [bees reading nessy mix](https://www.mediafire.com/file/ajy04nn02jfkltm/bees_reading_nessy_mix.osk/file)
 ![](https://imgur.com/sv4UfRG.jpg)
 # [Satori Komeiji](https://www.mediafire.com/file/9thmr3y95zi7n2r/-_%25E3%2580%258ANM1%25E3%2580%258B_-_%25E3%2580%258E_%25E6%259D%25B1%25E6%2596%25B9Project_%25E3%2580%258F_Satori_Komeiji__-.osk/file)
-![](https://cdn.discordapp.com/attachments/1143278102550675476/1195445449990086767/screenshot656.jpg?ex=65b40455&is=65a18f55&hm=1dcfaae1e26c7e3332d71440be2bc5610c982c55585f07619191b8c071b23c6c&)
+![](https://imgur.com/FWeptNF.jpg)
 ___
 # DT skins
 # [Rafis Generic DT skin](https://www.dropbox.com/s/mj8snq3xz4rx15y/Rafis%20Generic%20DT%20skin.osk?dl=0)
