@@ -3,7 +3,7 @@ My main skins!!! (click on the blue title) - I might upload my old skins later
 # [Gradient_Spam_Twilight](https://www.mediafire.com/file/ic5j2qviwvu7nno/Gradient_Spam_Twilight.osk/file)
 ![](https://cdn.discordapp.com/attachments/1120053887647358998/1209495362965078058/screenshot698.jpg?ex=65e72155&is=65d4ac55&hm=b123aa8d6be4b13e9d49f2434e7bd6d1c1f985ac7cb3516c9ade798cb9e091ca&)
 # [bees](https://www.mediafire.com/file/6sgmg5rvyjrvgwp/bees.osk/file)
-![](https://cdn.discordapp.com/attachments/841029933810581554/1195440867171901460/screenshot650.jpg?ex=65b40010&is=65a18b10&hm=5c71faea3f10cfe9429039c75f346c9bae4512de7fdd2bfcd140741cf5fd847f&)
+![](https://imgur.com/sv4UfRG)
 # [bees reading nessy mix](https://www.mediafire.com/file/ajy04nn02jfkltm/bees_reading_nessy_mix.osk/file)
 ![](https://cdn.discordapp.com/attachments/1120054938781892679/1201921463687581777/screenshot680.jpg?ex=65cb9397&is=65b91e97&hm=6cfbd27e04d424c650c9de310dce8c653d11959a37e631cf36d3b70dc4732d2d&)
 # [Satori Komeiji](https://www.mediafire.com/file/9thmr3y95zi7n2r/-_%25E3%2580%258ANM1%25E3%2580%258B_-_%25E3%2580%258E_%25E6%259D%25B1%25E6%2596%25B9Project_%25E3%2580%258F_Satori_Komeiji__-.osk/file)
